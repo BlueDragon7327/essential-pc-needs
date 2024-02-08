@@ -4,7 +4,8 @@ This .zip file works wonders! Easy access to all your favorite games. Custom Cur
 Now what are you waiting for?
 
 
-DODWNLOAD NOW
+ 
+ Download NOW
 
 
 
